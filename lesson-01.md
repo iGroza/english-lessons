@@ -5,7 +5,7 @@
 1. Nina `was celebrating` her birthday yesterday. Her room looked beautiful, there `were` many flowers in it. When I `was came` in, somebody `was plaing` the piano, two or three pairs `was dancing`. **слишком много `was`, так можно?**
    > Вчера Нина праздновала свой день рождения. Её комната выглядела красиво, в ней было много цветов.
    > Когда я зашел в неё, кто-то играл на пианино, две или три пары танцевали.
-2. Listen! Somebody `is plaing` the piano.
+2. Listen! Somebody `is playing` the piano.
    > Слушай! Кто-то играет на пианино.
 3. I `like` music very much.
    > Я очень сильно люблю музыку.
